@@ -1,5 +1,10 @@
 # 2026 End of Year best Album
 
+Blind Yeo - the Lemoine Point
+- Psych: high
+- Consist: high
+- Groove: good
+
 Kelly Stoltz
 
 Pearl and the Oysters
