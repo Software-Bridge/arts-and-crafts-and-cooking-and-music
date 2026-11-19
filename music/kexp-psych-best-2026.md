@@ -1,6 +1,6 @@
 # 2026 End of Year best Album
 
-**Top Tier:**__
+**Top Tier:**
 
 Temples
 
