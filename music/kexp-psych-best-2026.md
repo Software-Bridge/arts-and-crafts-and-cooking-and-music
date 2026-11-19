@@ -6,7 +6,7 @@ Temples
 
 Pearl and the Oysters
 
-**2nd Tier / Still Reviewing:**__
+**2nd Tier / Still Reviewing:**
 
 Blind Yeo - the Lemoine Point
 - Psych: high
