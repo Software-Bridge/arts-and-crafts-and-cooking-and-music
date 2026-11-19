@@ -1,13 +1,19 @@
 # 2026 End of Year best Album
 
+**Top Tier:**__
+
+Temples
+
+Pearl and the Oysters
+
+**2nd Tier / Still Reviewing:**__
+
 Blind Yeo - the Lemoine Point
 - Psych: high
 - Consist: high
 - Groove: good
 
 Kelly Stoltz
-
-Pearl and the Oysters
 
 The Black Tones
 
@@ -24,8 +30,6 @@ Vinyl Williams
 KUNZITE
 
 ISTA
-
-Temples
 
 Blackwater Holylight
 
