@@ -17,8 +17,17 @@ Blind Yeo - the Lemoine Point
 Like the transition into Frik frak and how the song holds you're attention. 
 
 
-
 Kelly Stoltz
+
+Psych adjecent 
+
+- writing the thread
+- held my attention into december
+- no reply i like that he's asking celestial bodies for information
+
+Consist: high
+
+(moving up)
 
 The Black Tones
 
@@ -40,7 +49,7 @@ Blackwater Holylight
 
 DIIV
 
-- 
+- Didn't make it 
 
 Spacemoth
 
