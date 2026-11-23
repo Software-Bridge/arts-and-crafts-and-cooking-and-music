@@ -17,9 +17,11 @@ Blind Yeo - the Lemoine Point
 Like the transition into Frik frak and how the song holds you're attention. 
 
 
-Kelly Stoltz
+**Kelly Stoltz**
 
 Psych adjecent 
+not consist psyche
+queens territory
 
 - writing the thread
 - held my attention into december
