@@ -9,9 +9,14 @@ Pearl and the Oysters
 **2nd Tier / Still Reviewing:**
 
 Blind Yeo - the Lemoine Point
-- Psych: high
-- Consist: high
+- Psychadelicness: high
+- Musicianship: high
+- Consistency: high
 - Groove: good
+
+Like the transition into Frik frak and how the song holds you're attention. 
+
+
 
 Kelly Stoltz
 
