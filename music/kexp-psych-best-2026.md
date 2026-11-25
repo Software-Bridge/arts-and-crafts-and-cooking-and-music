@@ -2,7 +2,7 @@
 
 **Top Tier:**
 
-Temples - Bliss
+**Temples - Bliss**
 
 Glimmer a great song.
 - Psycadelia: med-high
@@ -10,7 +10,9 @@ Glimmer a great song.
 - consistency: high
 - groove: very good
 
-Pearl and the Oysters
+**Pearl and the Oysters**
+
+- creative and musical 
 
 **2nd Tier / Still Reviewing:**
 
