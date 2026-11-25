@@ -31,11 +31,20 @@ Consist: high
 
 (moving up)
 
-The Black Tones
+**The Black Tones**
 
-Strange Lot
+- skipped
 
-Kula Shaker
+**Strange Lot**
+
+- Psych is high
+- Consistent tone
+- I'll call this in a sense background music.  It doesn't necessarily attract my attention
+- But at no point did i want to skip forward or quit
+- Starts picking up a bit, Hatin' You got my attention
+- 
+
+**Kula Shaker**
 
 Holy Wave
 
