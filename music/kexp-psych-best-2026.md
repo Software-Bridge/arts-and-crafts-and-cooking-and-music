@@ -2,7 +2,13 @@
 
 **Top Tier:**
 
-Temples
+Temples - Bliss
+
+Glimmer a great song.
+- Psycadelia: med-high
+- musicianship: high
+- consistency: high
+- groove: very good
 
 Pearl and the Oysters
 
